@@ -1,0 +1,1 @@
+https://polar-macadamia-efc.notion.site/LINUX-b85cbf3950424e66a9d38a1356edb8b1
